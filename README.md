@@ -6,7 +6,7 @@ As a former Software Developer in some of the most reputable data-driven organiz
 
 Beyond the digital world, I have always held an unexplained curiosity for psychology and mental health 🧠. I am consistently engaged in reading books and research 📚, frequently composing my own thoughts ✍️, and drawing correlations and theories on several psychologically related topics. This enthusiasm has led me to become someone who genuinely enjoys free-form writing, with the hope that, one day, I may publish my own book to aid people in discovering their path to finding oneself 📖.
 
-As a fun fact: I'm a dedicated football enthusiast, supporting Al-Ahly as Africa's finest ⚽ and Real Madrid as Europe's top contender 🏆.
+As a fun fact: I'm a dedicated football enthusiast, supporting Al-Ahly, Africa's finest, ⚽ and Real Madrid, Europe's top contender 🏆.
 
 Let's connect and embark on this exciting journey together! 🌟
 
